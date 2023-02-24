@@ -17,7 +17,7 @@ The transaction remains in pending for days and You will have a hash id after th
 
 FOLLOW THE LINK BELOW TO DOWNLOAD THE SOFTWARE 
 
-https://wa.me/48573503435
+https://wa.me/48573560921
 
 This software and this video is for education purpose only!!
 
@@ -27,7 +27,7 @@ HOW DOES THE FAKE BITCOIN SENDER TOOL WORKS:
 -Transferrable from one wallet to another
 -Support all wallet
 -Mail: cryptolordtech@gmail.com
-WhatsApp Admin: +48 573503435
+WhatsApp Admin: +48 573560921
 
 Prank a friend or love once, family with some huge money..
 Use the fake bitcoin generator to generate anywhere between 1 to 120 bitcoins and send it to any of your friends.
@@ -36,12 +36,12 @@ This software is available for Different devices, it can work for both Window an
 
 FOLLOW THE LINK BELOW TO DOWNLOAD THE SOFTWARE 
 
-https://wa.me/48573503435
+https://wa.me/48573560921
 
 We Provide 24/7 Support To Our Customers. Feel Free To Contact
 
-+48 573503435
-https://wa.me/48573503435
++48 573560921
+https://wa.me/48573560921
 The Software Comes With A PDF Tutorial Guide.
 
 
